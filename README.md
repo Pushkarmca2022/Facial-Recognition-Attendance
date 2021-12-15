@@ -10,3 +10,5 @@
 
 
 ![recogin5](https://user-images.githubusercontent.com/74053116/146201236-23ea571d-7145-4bdb-b3e9-8f1f40819023.PNG)
+
+![d6](https://user-images.githubusercontent.com/74053116/146201366-8df485fd-f410-4b63-9cac-226a4404dda3.PNG)
