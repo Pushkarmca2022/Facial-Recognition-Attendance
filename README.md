@@ -6,3 +6,6 @@
 
 ![add3](https://user-images.githubusercontent.com/74053116/146200992-ec97cd14-916f-4849-93fd-04bd94eb9910.PNG)
 
+![train4](https://user-images.githubusercontent.com/74053116/146201114-e74632b5-28e7-4495-9f36-9e7650a29297.PNG)
+
+
